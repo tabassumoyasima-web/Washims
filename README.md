@@ -1,1 +1,1 @@
-# Washims
+# Washimsa
